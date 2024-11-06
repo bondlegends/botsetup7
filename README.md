@@ -1,0 +1,1 @@
+# botsetup7
